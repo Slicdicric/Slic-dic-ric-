@@ -1,0 +1,2 @@
+# Slic-dic-ric-
+Personals
